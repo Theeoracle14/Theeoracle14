@@ -7,3 +7,7 @@ Oupsie... I'm Isaac 😂
 - CSS
 - Javascript
 - Python
+
+
+! [Gif](https://media1.tenor.com/m/EFUCE5MVnhgAAAAd/tired-exhausted.gif)
+! [Gif](https://media1.tenor.com/m/DX0kmIzxsqUAAAAC/alien-dancing.gif)
