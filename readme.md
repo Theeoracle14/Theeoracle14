@@ -9,5 +9,5 @@ Oupsie... I'm Isaac 😂
 - Python
 
 
-! [Gif](https://media1.tenor.com/m/EFUCE5MVnhgAAAAd/tired-exhausted.gif)
-! [Gif](https://media1.tenor.com/m/DX0kmIzxsqUAAAAC/alien-dancing.gif)
+! [Gif](https://tenor.com/fr/view/tired-exhausted-bored-bordem-pmb-gif-23000955)
+! [Gif](https://tenor.com/fr/view/alien-dancing-funny-gif-14383108)
